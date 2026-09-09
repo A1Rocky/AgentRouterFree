@@ -1,4 +1,5 @@
 # AgentRouterFree
+https://agentrouter.org/register?aff=lIte
 
 <img width="930" height="631" alt="image" src="https://github.com/user-attachments/assets/1fd88855-384e-40e5-8344-709c546755a8" />
 
